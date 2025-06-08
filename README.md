@@ -1,5 +1,5 @@
 <img align="left" src="https://64.media.tumblr.com/e6d0820820cdacd78d5aed2f407ea613/d2fb90d240bb68fc-e9/s1280x1920/4fb73740c14949f079dda523cfd457481c877b4b.gif">
-<b>★ ‧ jade! 23 yo pup it she</b>
+<b>★ ‧ jade! 23 yo pup it she syshost</b>
 </br>
 <sub>🟢 + 💬 ; actively ingame. F2I!
 </br>🌙  ; busy irl / offtab. open to interaction, but please whisper!
