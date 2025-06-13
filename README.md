@@ -3,6 +3,7 @@
 </br><sub>┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄
   </br>hiii!! i'm autistic and quite awkward, i probably won't start conversations first.. but i really
 </br>enjoy meeting people! just talk to me like we're already besties :p
+</br><b>my headmates may play on this account!</b>
   </br><b>no minors</b>. not interested in syscourse, but i don't have favorable views on endos
 </br>── .✦
 </br><b>↳ c + h, touch, friend reqs, etc are all ok!</b>
