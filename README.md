@@ -1,16 +1,18 @@
 <img align="right" src="https://64.media.tumblr.com/e6d0820820cdacd78d5aed2f407ea613/d2fb90d240bb68fc-e9/s1280x1920/4fb73740c14949f079dda523cfd457481c877b4b.gif">
 <p align="left"><b>★ ‧ jade! 23 pup it she sys</b>
 </br><sub>┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄
-  </br>hiii!! i'm autistic and quite awkward, i probably won't start conversations first.. but i really
-</br>enjoy meeting people! just talk to me like we're already besties :p
-</br><b>my headmates may play on this account!</b>
-  </br><b>no minors</b>. not interested in syscourse, but i don't have favorable views on endos
+  </br>hiii!! i probably won't start conversations first, i'm autistic so i'm quite awkward. i
+</br>enjoy meeting people though! just act like we're already bffs :p
 </br>── .✦
-</br><b>↳ c + h, touch, friend reqs, etc are all ok!</b>
+</br><b>↳ c + h, touch, friend reqs, etc all ok!</b>
 </br>🟢 + 💬 ; actively ingame. F2I!
 </br>🌙  ; busy irl / offtab. open to interaction, but please whisper!
 </br>⛔ ; super busy! W2I, slow responses
   </br><b>i don't ignore anyone on purpose!!</b>
+  </br>── .✦
+  </br><b>no minors</b>
+</br>antiendo but no syscoursers or id discoursers. thank youu
+  </br><b>my headmates may play on this account!</b>
 </br>┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄
   </br>✘<ins><b> don't copy/heavy inspo/screenshot/etc our skins</b></ins>.
 </br><sub>unfortunately i've seen a jade or two doing this.. ^_^; i've also been told some of my skins were on pinterest. <b>they're representations of me or my headmates</b>, so please just ask me if you're curious about a skin i've made. i don't like hiding, but i will if i suspect you're doing this :(</sub>
