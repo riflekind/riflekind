@@ -1,5 +1,5 @@
 <img align="left" src="https://files.catbox.moe/s0ngvr.webp" width="28%" height="28%">
-</br>
+</br><b>jade <i>!!</i></b>  23 pup / she
 </br>syshost 4w5 enfp
 </br>maid of space && prospit
 </br><sub>i don't care about discourse, syscourse, shipcourse etc.
