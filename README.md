@@ -1,5 +1,6 @@
 <img align="left" src="https://files.catbox.moe/s0ngvr.webp" width="28%" height="28%">
-<b>jade <i>!!</i></b>  23 pup / she
+<img align="left" src="https://zero-pixels.carrd.co/assets/images/gallery07/40035d37.png?v=afbd4ea1"><img align="left" src="https://zero-pixels.carrd.co/assets/images/gallery05/13d40918.png?v=afbd4ea1"><img align="left" src="https://zero-pixels.carrd.co/assets/images/gallery01/b4f52266.png?v=afbd4ea1">
+</br><b>jade <i>!!</i></b>  23 pup / she
 </br>syshost 4w5 enfp
 </br>maid of space && prospit
 </br><sub>i don't care about discourse, syscourse, shipcourse etc.
