@@ -5,7 +5,7 @@
 </br>maid of space && prospit
 </br><img src="https://64.media.tumblr.com/047dd9502540f819a4d687288016150c/bda8b752119b2997-ab/s1280x1920/2294b2fc5830dd55ce2562d3619a41c873d5f6b1.jpg" style="width: 175px;">
 <p>⚠️ june "disagreers" dni</b>
-</br>i really don't care about id / sys / shipcourse (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)
+</br>i really don't care about whatever discourse (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)
 </br></br>normally offtab; w2i
 </br>↳ my discord is @witch.of.space, feel free to add me
 </br>  ( let me know before you do ty!! )
