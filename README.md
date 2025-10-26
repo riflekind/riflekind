@@ -7,6 +7,7 @@ jade <i>!!</i> 23  she / <a href="https://pronouns.cc/@lofaf/jade">pup</
 <p>⚠️ june "disagreers" dni</b>
 </br>i really don't care about id / sys / shipcourse (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)
 </br></br>normally offtab; w2i
-</br>↳ my discord is @witch.of.space, feel free to add me but let me know before you do ty!!
+</br>↳ my discord is @witch.of.space, feel free to add me
+</br>  ( but let me know before you do ty!! )
 </br><img src="https://64.media.tumblr.com/047dd9502540f819a4d687288016150c/bda8b752119b2997-ab/s1280x1920/2294b2fc5830dd55ce2562d3619a41c873d5f6b1.jpg" style="width: 400px;"></p>
 <p align="left"><img src="https://files.catbox.moe/ru8qxl.png"> <img src="https://files.catbox.moe/o79ph6.png"><img src="https://files.catbox.moe/l7dxq2.png"></p>
