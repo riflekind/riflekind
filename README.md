@@ -3,10 +3,10 @@
 <b>jade</b> <i>!!</i> 23  she / <a href="https://pronouns.cc/@lofaf/jade">pup</a> </h3>
 <p>dxed sys 4w5 enfp
 </br>maid of space && prospit
-</br><img src="https://64.media.tumblr.com/047dd9502540f819a4d687288016150c/bda8b752119b2997-ab/s1280x1920/2294b2fc5830dd55ce2562d3619a41c873d5f6b1.jpg" style="width: 175px;">
+</br></br>c + h / whatever are perfectly fine even if i'm afk... frqs are ok if we've talked too!!
 <p>⚠️ june "disagreers" dni</b>
 </br>i really don't care about id/sys/ship/whatever discourse!! (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)
-</br></br>w2i; i'm normally offtab, no one is ignored on purpose
+</br>w2i; i'm normally offtab, no one is ignored on purpose
 </br>↳ my discord is @witch.of.space, feel free to add me
 </br>  ( let me know before you do ty!! )
 </br></br><b>✘ <ins>no heavy inspo / copy / reuploading skins</b></ins>
