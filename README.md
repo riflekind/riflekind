@@ -1,14 +1,14 @@
-<img src="https://files.catbox.moe/s0ngvr.webp" align="left" style="width: 300px;">
+<img src="https://64.media.tumblr.com/fc6b553b17545d11886d4e723f00f815/89ac187628731652-84/s1280x1920/cbc8fd01e5d4e1e8886a1ffc6f153b53f0503b44.png" align="left" style="width: 300px;">
 <p align="left"><img src="https://files.catbox.moe/60odjb.gif" style="width: 140px;"></p>
 <b>jade</b> <i>!!</i> 23  she / <a href="https://pronouns.cc/@lofaf/jade">pup</a> </h3>
 <p>dxed sys 4w5 enfp
 </br>maid of space && prospit</p>
-</p>any ints are fine even if i'm afk. frqs are ok if we've talked !!</p>
-<p>⚠️ june "disagreers" dni</b>
-</br>i really don't care about id/sys/ship/whatever discourse!! (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)</p>
-<p>w2i; i'm normally offtab, no one is ignored on purpose
+<p>c + h / frqs / whatever are all fine even if i'm afk
+</br>W2I!! i'm normally offtab, no one is ignored on purpose
 </br>↳ my discord is @witch.of.space, feel free to add me
-</br>  ( let me know before you do ty!! )
-</br></br><b>✘ <ins>no heavy inspo / copy / reuploading skins</b></ins>
-</br><img src="https://64.media.tumblr.com/047dd9502540f819a4d687288016150c/bda8b752119b2997-ab/s1280x1920/2294b2fc5830dd55ce2562d3619a41c873d5f6b1.jpg" style="width: 400px;"></p>
+</br>  ( let me know before you do ty!! )</p>
+<p>⚠️ june "disagreers" dni</b>
+</br>i really don't care about id / sys / ship / whatever discourse!! (ᐡ⸝⸝𖦹  ̫ 𖦹⸝⸝ᐡ)</p>
+<p><b>✘ <ins>no heavy inspo / copy / reuploading skins</b></ins></p>
+<p><img src="https://64.media.tumblr.com/334ef3928a5d5ec2e45bd59d90425e58/3d346fea3a4ecdaa-52/s1280x1920/b62aaa9cba5f428d5a311f99e7ad7965b2a551e4.png" style="width: 400px;"></p>
 <p align="left"><img src="https://files.catbox.moe/ru8qxl.png"> <img src="https://files.catbox.moe/o79ph6.png"><img src="https://files.catbox.moe/l7dxq2.png"></p>
