@@ -1,5 +1,5 @@
-<img src="https://64.media.tumblr.com/fc6b553b17545d11886d4e723f00f815/89ac187628731652-84/s1280x1920/cbc8fd01e5d4e1e8886a1ffc6f153b53f0503b44.png" align="left" style="width: 300px;">
-<p align="left"><img src="https://files.catbox.moe/60odjb.gif" style="width: 140px;"></p>
+<img src="https://files.catbox.moe/byzgft.gif" align="left" style="width: 300px;">
+<p align="left"><img src="https://files.catbox.moe/ylet4b.png" style="width: 400px;"></p>
 <b>jade</b> <i>!!</i> 23  she / <a href="https://pronouns.cc/@lofaf/jade">pup</a> </h3>
 <p>dxed sys 4w5 enfp
 </br>maid of space && prospit</p>
