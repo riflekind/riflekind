@@ -1,4 +1,3 @@
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=misadventurez&count=3)
 <div align="center">
 <table><tr>
 <table style="width:800px; max-width:100%; margin:3px;">
