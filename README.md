@@ -4,7 +4,7 @@
 <td style="width:430px; text-align:center;">
 <p align="center"><img src="https://64.media.tumblr.com/4e70673268bda36cbb80f25d58481668/5b5768b53aad21c8-12/s2048x3072/cb62a0061fabb979b62ff924c6b40a7089b3ca99.pnj" style="width: 360px;"></p>
 <img src="https://64.media.tumblr.com/4976b58fc8ec95346d8032ab98e286cc/8e1072fdc15f8d31-a0/s1280x1920/e0bb711c2588a3c0fdca65c7a3875ab896a790f2.png" align="right" style="width: 150px;">
-<h3><p>jade</b> <i>!!</i> 24  she <a href="https://pronouns.cc/@lofaf/jade">pup</a></p></h3>
+<h3><p>jade</b> <i>!!</i> 24  she <a href="https://pronouns.cc/@riflekind/jade">pup</a></p></h3>
 <p>4w5 enfp fict
 </br>maid of space && prospit</p>
 <p align="center">whisp if i dont respond <i>!!</i> i don't ignore on purpose
